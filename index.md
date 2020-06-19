@@ -10,4 +10,4 @@ Er ist ein Verbrecherjäger, der Selbstjustiz ausübt und auch vor gewalttätige
 Motto
 > Si vis pacem, para bellum
 
-
+<img src="https://vignette.wikia.nocookie.net/marveldatabase/images/8/82/Frank_Castle_%28Earth-616%29_from_Punisher_Vol_5_4_0001.jpg/revision/latest/scale-to-width-down/180?cb=20170402025750"/>
