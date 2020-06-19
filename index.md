@@ -6,3 +6,8 @@ Er ist ein Verbrecherjäger, der Selbstjustiz ausübt und auch vor gewalttätige
 * Peng
 * Boom
 * Bäm
+
+Motto
+> Si vis pacem, para bellum
+
+
